@@ -1,0 +1,1 @@
+# splitimage-tech-support
